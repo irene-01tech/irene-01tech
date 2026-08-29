@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @irene-01tech
 - 👀 I’m interested in programming 
-- 🌱 I’m currently learning python
+- 🌱 I’m currently open to the vast opportunities 
 - 💞️ I’m looking to collaborate on any open offer
 - 📫 How to reach me @ireneolong
 - 😄 Pronouns: she
